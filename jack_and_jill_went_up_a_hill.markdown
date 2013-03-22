@@ -1,4 +1,4 @@
 Jack and Jill went up a hill
 to fetch a pale of water.
-Jack fell down and broke his crown
+Jack fell down and broke his skull
 and Jill came tumbling after.
